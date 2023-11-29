@@ -24,6 +24,7 @@
 - I am learning many language of programming
 - I want to be expert in this domain
 - currently open github account 
+- new expreience 
 <br><br>
 
 <img src="https://user-images.githubusercontent.com/73097560/115834477-dbab4500-a447-11eb-908a-139a6edaec5c.gif"><br><br>
